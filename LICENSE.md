@@ -1,4 +1,4 @@
-# 
+# VIP bitmex trading bot herramientas for Mac OS | Último bitmex trading bot herramientas for PC Windows. Featuring API de intercambio centralizado and estrategia de reversión a la media — optimized for maximum performance.
 
 
 
